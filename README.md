@@ -1,4 +1,4 @@
-### Hi there 👋, Ares
+### I'am Ares 🦄
 
 #### i'm interested in football and code sounds fun.
 
